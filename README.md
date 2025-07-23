@@ -1,3 +1,3 @@
 <p align="center">
-  <img width="460" height="300" src="https://files.catbox.moe/n3ylsu.webp">
+  <img width="460" height="300" src="https://files.catbox.moe/9rwd4r.gif">
 </p
