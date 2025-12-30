@@ -3,4 +3,4 @@
   <img width="460" height="300" src="https://files.catbox.moe/q1oo9p.gif">
 </p>
 <p align="center">
-me and my bsfs!!! ^-^ (piggies...)  </p>
+me and my piggie freinds waoh  </p>
