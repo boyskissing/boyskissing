@@ -3,4 +3,4 @@
   <img width="460" height="300" src="https://files.catbox.moe/q1oo9p.gif">
 </p>
 <p align="center">
-me and chuds #ilovemyfriends ^-^  </p>
+me and pigpen gc (੭>ᴗ<)੭ MY losers club  </p>
