@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img width="460" height="300" src="https://files.catbox.moe/q1oo9p.gif">
+  <img width="460" height="300" src="https://files.catbox.moe/1yaegf.gif">
 </p>
 <p align="center">
-me and pigpen gc (੭>ᴗ<)੭ MY losers club  </p>
+me and pigpen gc (hi guys)  </p>
