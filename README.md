@@ -1,6 +1,11 @@
 
 <p align="center">
-  <img width="460" height="300" src="https://files.catbox.moe/1yaegf.gif">
+https://rentry.co/wheelertozier 🗨️
+  </p>
+  
+<p align="center">
+  <img width="600" height="600" src="https://files.catbox.moe/nsh98u.png">
 </p>
 <p align="center">
-  https://rentry.co/wheelertozier 🎁 </p>
+  @fIowerboy and @scottpiIgrim and me 🩵💛❤
+</p>
