@@ -5,4 +5,4 @@ https://rentry.co/wheelertozier 🗨️
 <p align="center">
   <img width="600" height="600" src="https://files.catbox.moe/nsh98u.png">
 
- [@fIowerboy](https://github.com/fIowerboy) and [@scottpiIgrim](https://github.com/scottpiIgrim) and me 🩵💛❤
+[mike](https://github.com/fIowerboy) and [cat](https://github.com/scottpiIgrim) and me 🩵💛❤
