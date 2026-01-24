@@ -6,7 +6,7 @@ https://rentry.co/wheelertozier 🗨️
 <img width="400" height="400" src="https://files.catbox.moe/ehfhrf.png">
 
 <p align="center">
-@fIowerboy @scottpiIgrim me @eddisode and vysters
+@fIowerboy @scottpiIgrim me @eddisode and @vysters
 </p>
 <p align="center">
 🩵💛❤️🧡💜
