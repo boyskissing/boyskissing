@@ -11,5 +11,6 @@ https://rentry.co/wheelertozier 🗨️
  <img width="280" height="460" src="https://file.garden/aXWeXtPgtglShsR3/meow.png">
  
 <p align="center">
-me and my ponyBESTFRIENDS!!! :o 
+‎ ‎ @fIowerboy @scottpiIgrim me @eddisode @vysters @puplove @itadei @cursedtides and @frankensteln
+
 </p>
