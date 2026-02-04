@@ -2,12 +2,14 @@
 https://rentry.co/wheelertozier 🗨️
 </p>
 
-  <p align="center">
-<img width="400" height="400" src="https://files.catbox.moe/ehfhrf.png">
+<div align="center">
+<div align="center">
+<p align="center">
+<img width="250" height="460" src="https://file.garden/aXWeXtPgtglShsR3/wudufart.png">
 
+ <p align="center">
+ <img width="280" height="460" src="https://file.garden/aXWeXtPgtglShsR3/meow.png">
+ 
 <p align="center">
-@fIowerboy @scottpiIgrim me @eddisode and @vysters
-</p>
-<p align="center">
-🩵💛❤️🧡💜
+me and my ponyBESTFRIENDS!!! :o 
 </p>
