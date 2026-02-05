@@ -1,6 +1,10 @@
-<p align="center">
-https://rentry.co/wheelertozier 🗨️
-</p>
+
+
+<div align="center">
+<div align="center">
+
+[🎁 frum mike](https://rentry.co/wheelertozier)ㅤㅤ[ata](https://flrmp.atabook.org/)ㅤㅤ[rentry](https://rentry.co/richietozier)ㅤㅤ[guns.lol](https://guns.lol/tozier)
+
 
 <div align="center">
 <div align="center">
