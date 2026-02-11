@@ -15,6 +15,6 @@
  <img width="280" height="460" src="https://file.garden/aXWeXtPgtglShsR3/meow.png">
  
 <p align="center">
-‎ ‎ @fIowerboy @scottpiIgrim me @eddisode @vysters @puplove @itadei @cursedtides and @frankensteln
+‎ ‎ me & piggy gc ^,^
 
 </p>
