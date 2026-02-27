@@ -16,6 +16,7 @@
 
 </p>
 
- <p align="center">
- <img width="280" height="460" src="https://files.catbox.moe/xb3do3.png">
- 
+<div align="center">
+<div align="center">
+
+ive been really inactive on pt, sorry in advance! I'll try to be more active when i feel better :)
