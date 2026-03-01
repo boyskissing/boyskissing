@@ -20,3 +20,8 @@
 <div align="center">
 
 ive been really inactive on pt, sorry in advance! I'll try to be more active when i feel better :)
+
+<div align="center">
+<div align="center">
+<p align="center">
+<img width="250" height="460" src="https://files.catbox.moe/7db18r.png">
