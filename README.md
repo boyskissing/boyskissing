@@ -9,19 +9,15 @@
 <div align="center">
 <div align="center">
 <p align="center">
-<img width="250" height="460" src="https://file.garden/aXWeXtPgtglShsR3/wudufart.png">
-
+<img width="250" height="460" src="https://file.garden/aY_SRHVwriDZAcU8/piggy.webp">
 <p align="center">
-‎ ‎ me & piggy gc ^,^
+luv meh piggy friens
 
 </p>
 
 <div align="center">
 <div align="center">
 
-ive been really inactive on pt, sorry in advance! I'll try to be more active when i feel better :)
 
-<div align="center">
-<div align="center">
-<p align="center">
-<img width="250" height="460" src="https://files.catbox.moe/7db18r.png">
+
+https://github.com/user-attachments/assets/2a07409e-ad49-4182-ae26-2ff991f477b3
