@@ -6,17 +6,6 @@
 [🎁'd co/cheetozier](https://rentry.co/cheetozier)ㅤㅤ[🎁'd co/wheelertozier](https://rentry.co/wheelertozier)ㅤㅤ[ata](https://flrmp.atabook.org/)ㅤㅤ[rentry](https://rentry.co/richietozier)ㅤㅤ[guns.lol](https://guns.lol/tozier)
 
 
-<div align="center">
-<div align="center">
-<p align="center">
-<img width="250" height="460" src="https://file.garden/aY_SRHVwriDZAcU8/okokok.png">
-<p align="center">
-blehh blehh blehh
-
-</p>
-
-<div align="center">
-<div align="center">
 
 
 
